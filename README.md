@@ -1,5 +1,0 @@
-# domino
-2018
-masatoshi
-masatoshi
-madsatosui12312133213221231
